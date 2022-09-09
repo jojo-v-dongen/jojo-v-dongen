@@ -1,5 +1,4 @@
 Jordy v. Dongen  
-Email: Jordyvd2525@gmail.com  
 Instagram: @JoJo.v.Dongen  
 Discord: Jordyvd2525NL#9667  
 
